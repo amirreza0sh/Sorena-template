@@ -1,4 +1,4 @@
-Introducing the Surena template
+<b>Introducing the Surena template</b>
 
 Sorena template is a professional HTML store template with a beautiful and stylish design based on the popular and powerful Tailwind framework. This template is an Iranian product and is designed completely according to the taste and needs of Iranian users so that they can use and enjoy their site easily and without problems. If you are looking for a professional store template that meets all your needs, we recommend Sorena template.
 
