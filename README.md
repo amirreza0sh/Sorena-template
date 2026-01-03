@@ -1,0 +1,7 @@
+Introducing the Surena template
+
+Sorena template is a professional HTML store template with a beautiful and stylish design based on the popular and powerful Tailwind framework. This template is an Iranian product and is designed completely according to the taste and needs of Iranian users so that they can use and enjoy their site easily and without problems. If you are looking for a professional store template that meets all your needs, we recommend Sorena template.
+
+Sorena template is clean, principled and completely standard with coding. This is a completely responsive and responsive 33 pages ready for you, and it is a unique and problem-free template. Sorena store HTML template is completely different and responsive to the width of the page and can be viewed on all devices including computers, tablets, mobile phones, etc. and is also compatible with and will run on a variety of browsers including Internet Explorer, Chrome, Opera, FireFax, etc. In this template, the Yekan Bakh font, which is an excellent and first-class font, is used to deliver stylish and beautiful texts to the user. Making changes to this template is very easy, and you can easily make the necessary changes quickly.
+
+This template has 32 completely dedicated and professional pages. To prevent possible abuse, you only have access to 8 pages before purchasing, but after purchasing the template, you will have access to all pages and professional support.
